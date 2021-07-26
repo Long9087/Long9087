@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Long9087
-- 👀 I’m interested in developing the game, art, travelling and play esport games.
+- 👋 Hi, I’m @Long9087. I am living in Ha Noi.
+- 👀 I’m interested in developing the game, art, travelling and play esport games 🥉.
 - 🌱 I’m currently learning how to build a complete game.
 - 📫 My email :
 - thanhlong9087q000@gmail.com
