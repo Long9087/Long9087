@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Long9087, I'm a developer in Gameloft coporation. Hehe :>
+- 👋 Hi, I’m @Long9087, I'm a developer in Gameloft corporation. Hehe :>
 - 👀 I’m interested in developing the game, art and playing esport games 🥉.
 - 🌱 I’m currently learning how to build a complete game.
 - 📫 My email :
