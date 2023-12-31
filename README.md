@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @Long9087 Hehe :>
-- 👀 I’m interested in developing the game, joining technical software development art and playing esport games 🥉.
-- 🌱 I’m currently learning how to build a complete game.
 - 📫 My email :
 - thanhlong9087q000@gmail.com
 - thanhlong150800@gmail.com
