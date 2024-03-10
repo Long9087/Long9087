@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Long9087 Hehe :>
+- 👋 Hi, I’m @Long9087
 - 📫 My email :
 - thanhlong9087q000@gmail.com
 - thanhlong150800@gmail.com
